@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @irafaelmarinc
+- 👋 Hi, I’m @rmarincob
 - 📫 How to reach me https://linkedin.com/in/irafaelmarinc/
 
 <!---
